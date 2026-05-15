@@ -96,4 +96,6 @@ O uso contínuo do bot após alterações representa aceitação automática da 
 
 ## 10. Contato
 
-Para dúvidas relacionadas à privacidade ou dados, entre em contato através do servidor oficial do Pool Arkan.
+Para dúvidas relacionadas à privacidade ou dados, entre em contato através do servidor oficial; 
+Discord; discord.gg/rdHb86Chyy
+Rede Sociais :linktr.ee/GregPoolOFC
