@@ -1,4 +1,4 @@
-# Política de Privacidade — Pool Arkan
+# Política de Privacidade — Poolbot
 
 Última atualização: 15 de Maio de 2026
 
